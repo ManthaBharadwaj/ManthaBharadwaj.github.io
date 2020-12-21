@@ -8,7 +8,7 @@ Find out here: [My Quora Answer](https://qr.ae/pNcMoZ)
 
 ![my photo](me.jpg)
 
-This picture has nothing to do with the stuff you are about to read. Just thought it carries a good vibe and goes in par with the content. Would like to share a few thoughts about 
+This is me. This picture has nothing to do with the stuff you are about to read. Just thought it carries a good vibe and goes in par with the content. Would like to share a few thoughts about 
 **How I view life**.
 
 There is no actual dictionary meaning of life, its definition changes according to perspectives of each and every human being.
